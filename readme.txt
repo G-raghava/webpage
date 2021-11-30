@@ -42,4 +42,3 @@ This section includes the images of my hobbies and picturization can easily unde
 Section 9. Contact me
 These are my personal networks anyone can easily contacts using these id's  
 
-This site is hosted at 
